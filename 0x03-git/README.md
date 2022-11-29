@@ -1,1 +1,1 @@
-2second
+this ivery good kbx ariko birakomeye
